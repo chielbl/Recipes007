@@ -10,7 +10,7 @@
 - 1/8 teaspoon cayenne pepper
 - 2 cloves garlic, minced 
 - 2 slices of cheeze
-- 1 tomato
+- 1 tomato/potato
 - salad
 
 ## Preparation
